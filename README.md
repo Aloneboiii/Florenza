@@ -14,7 +14,7 @@
 
 ## CREDIT 
 
- Rhne do jarurat k Time pe sab bhao khate h😏
+ Rhne do jarurat k Time pe sab bhao khate hai😏
 
 
 
